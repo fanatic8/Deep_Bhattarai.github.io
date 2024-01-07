@@ -4,7 +4,7 @@
 Biochemical Engineering, MSC
 
 ### work experience
-Loading soon.....
+* Loading soon.....
 
 ### projects
-In process
+* In process
